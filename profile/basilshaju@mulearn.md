@@ -1,4 +1,4 @@
-# BasilShaju (Learning Ai &Ml engineer)
+# Basil Shaju (Learning Ai &Ml engineer)
 ### Squad Domain: Coder | FIFA Nation: Portugal
 
 ### About Me
